@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with others on content projects
 - 📫 You could reach me through my email matthewsylvia624@gmail.com
 - SHE
-- ⚡ Fun fact: ...
+- I love writing; it has always been a safe space for expressing myself
 
 <!---
 Sylvia691/Sylvia691 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
